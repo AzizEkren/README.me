@@ -6,6 +6,6 @@
 
 - 🌱 I’m currently learning *everything*
 
-- 📫 How to reach me *azizkaragulmez07@gmail.com*
+- 📫 How to reach me *azizekren18@gmail.com*
 
-- *Click to View My Website* *http://akaragulmez.42web.io/*
+- *Click to View My Website* *http://azizekren.rf.gd/*
