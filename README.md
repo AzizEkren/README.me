@@ -8,4 +8,4 @@
 
 - 📫 How to reach me *azizekren18@gmail.com*
 
-- *Click to View My Website* *http://azizekren.rf.gd/*
+- *Click to View My Website* *http://azizekren.42web.io/*
